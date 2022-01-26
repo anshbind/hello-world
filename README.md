@@ -4,4 +4,4 @@
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on ...
 - 📫 i made this to store ideas and stuff ig
-this is edited, just suppose 
+this is edited, just suppose it is
